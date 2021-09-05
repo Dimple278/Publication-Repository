@@ -162,7 +162,8 @@ Janak Sharma  - janaksharma2075@gmail.com
 
 Bishal Bashyal - bishalbashyal33@gmail.com
 
-Dimple saraogi - example@gmail.com
+Dimple saraogi - dsaraogi2000@gmail.com
+               - 075BCT034.dimple@pcampus.edu.np
 
 Bishal Katuwal - bis3hal@gmail.com
                - 075BCT028.bishal@pcampus.edu.np
